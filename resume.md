@@ -19,6 +19,7 @@ Provide _world class support_ to customers on the GitHub platform
 
 ## Skills
 Full Driver License
+Fluent English and German
 
 ### Education
 
